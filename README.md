@@ -8,4 +8,4 @@
 
 ### Contact 
 
-###  📂 Blog : <a href="https://https://blog.naver.com/syl610/"> dlemrcnd.tistory.com </a>
+###  📂 Blog : <a href="https://https://blog.naver.com/syl610/"> https://blog.naver.com/syl610 </a>
